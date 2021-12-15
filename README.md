@@ -1,4 +1,4 @@
-### Recommanded album for coding :)
+### Recommanded albums for coding :)
 
 
 > The Wall - Pink Floyd  
